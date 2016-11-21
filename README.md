@@ -1,1 +1,1 @@
-# Projey-Smart-Patate
+# Projet-Smart-Patate
